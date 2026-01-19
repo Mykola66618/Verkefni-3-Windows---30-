@@ -1,1 +1,1 @@
-# Verkefni-3-Windows---30-
+# Verkefni-3-Windows---30%
